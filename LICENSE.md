@@ -1,4 +1,4 @@
-# 
+# Instantâneo Krita modelos para Mac OS | Atualizado Krita modelos para PC Windows. Com formulários interativos e exportação de protótipos — otimizado para máximo desempenho em cada plataforma.
 
 
 
